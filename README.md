@@ -12,6 +12,8 @@ Furthermore, the Car Analyst is equipped to discuss and analyze future trends in
 
 #
 ![F80 Ferrari](https://github.com/user-attachments/assets/de023d76-6fc1-463c-95b5-0d13e4c5e380)
+#
+![Three-Wheeler](https://github.com/user-attachments/assets/7d3ea3c8-e477-40d2-b990-88710c95e065)
 
 #
 ### Related Links
